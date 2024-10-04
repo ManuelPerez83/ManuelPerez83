@@ -36,18 +36,8 @@ My short-term goal is to obtain a new career in Information Technology, where I 
 
 ---
 
-## Community Involvement:
-*Share any clubs, forums, or organizations you're a part of.*
-
----
-
 ## Personal Projects:
 Currently, I am working on developing better social skills to enhance my interpersonal communication and networking abilities.
-
----
-
-## Contact Information:
-Feel free to reach out to me at [your.email@example.com] or connect with me on [LinkedIn](https://www.linkedin.com/in/your-linkedin-profile).
 
 ---
 
